@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shoyaaa
+- 👀 I’m interested in Assembly and C
+- 📫 You can't reach me hahaha
